@@ -1,4 +1,4 @@
-- 👋 Hi, I’m shahd 
+- 👋 Hi, I’m Shosh
 - 👀 I’m interested in advintures 
 - 🌱 I’m currently learning IT engeneering 
 - 😄 Pronouns: SHE 
